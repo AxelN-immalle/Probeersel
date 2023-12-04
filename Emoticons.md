@@ -1,0 +1,2 @@
+:japanese_ogre:
+:kiss:
